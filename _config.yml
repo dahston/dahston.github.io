@@ -1,7 +1,7 @@
 title: Underdeveloped # The title of the blog
 author: Dan Dwan # Your name 
 email: danieldwan@gmail.com # your email shown in the footer
-url: http://dahston.github.io/ # this is your site's root address.
+url: https://dahston.github.io/ # this is your site's root address.
 description: > # this means to ignore newlines until "show_excerpts:"
 favicon: "./favicon.ico" # set the favicon of the site 
 
