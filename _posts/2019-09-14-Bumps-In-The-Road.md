@@ -12,6 +12,6 @@ I'm proud of myself for recognising my feelings, acknowledging them and making a
 
 I think it's also important to acknowledge that even now I don't feel 100% okay, and that's okay. I'm okay with the fact that I don't feel 100% okay right now :)
 
-I feel like i should write more, here, today. But I don't want to force it. I'm happy that I worked up the courage to post anything, this is my first post from home, buffered on both ends with free time that terrifies me.
+I feel like I should write more, here, today. But I don't want to force it. I'm happy that I worked up the courage to post anything, this is my first post from home, buffered on both ends with free time that terrifies me.
 
-That's kind of hilarious, to be terrified by free time. But I've spent the better half of the last 15 years running away from myself, doing whatever I could to not have to think, or feel. I guess what I'm saying that it's scary to confront yourself after so many years of avoiding yourself. But I know I can do it. I have to keep reminding myself of the intentions I have laid out, and how I don't want to feel the way I do when I have given up.
+That's kind of hilarious, to be terrified by free time. But I've spent the better half of the last 15 years running away from myself, doing whatever I could to not have to think, or feel. I guess what I'm saying is that it's scary to confront yourself after so many years of avoiding yourself. But I know I can do it. I have to keep reminding myself of the intentions I have laid out, and how I don't want to feel the way I do when I have given up.
